@@ -1,1 +1,1 @@
-Included in pdf report for privacy reasons.
+All content is included in the pdf report.
