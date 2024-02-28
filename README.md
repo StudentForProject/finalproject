@@ -1,1 +1,1 @@
-All content is included in the pdf report.
+All content is included in the pdf file submission.
